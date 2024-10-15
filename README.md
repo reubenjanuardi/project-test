@@ -1,1 +1,1 @@
-hey dont be to serios, this just random project of mine
+hey dont be to serious, this just random project of mine
